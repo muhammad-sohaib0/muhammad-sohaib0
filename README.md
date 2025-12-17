@@ -40,7 +40,7 @@ I specialize in building **AI agents, chatbots, and automation systems** using b
 ---
 
 ## 📫 Contact
-- 📧 Email: **ahsen3542@gmail.com**
+- 📧 Email: **sohaib0285@gmail.com**
 
 ---
 
